@@ -1,3 +1,3 @@
 # 复盘记录
 
-> An awesome project.
+> 不亏就是赚
